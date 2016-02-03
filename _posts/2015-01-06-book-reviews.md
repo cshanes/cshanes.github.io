@@ -18,7 +18,7 @@ The only bad thing I have to say about this book is that the sequel is not out y
 
 ## Slaughterhouse Five by Kurt Vonnegut
 
-I watched the movie Adaptation earlier this year and absolutely loved it. After watching it I started reading discussions about it. There was a thread about other examples where an author writes themselves into a book. Slaughterhouse Five came up, and I decided to re-read it because I love Vonnegut and when I read the book in highschool it didn't have much of an impact on me. 
+I watched the movie Adaptation earlier this year and absolutely loved it. After watching it I started reading discussions about it. There was a thread about other examples where an author writes themselves into a book. Slaughterhouse Five came up, and I decided to re-read it because I love Vonnegut and when I read the book in highschool it didn't grab me. 
 
 > A moment went by, and then every cell in Billy’s body shook him with ravenous gratitude and applause.
 
