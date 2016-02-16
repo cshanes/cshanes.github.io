@@ -3,7 +3,6 @@ layout: post
 title: "Eight books I read in 2015"
 excerpt: "Reviews for the eight books I read in 2015"
 tags: [books, reviews]
-modified: 2016-02-15
 comments: true
 ---
 
